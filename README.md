@@ -1,0 +1,2 @@
+# CYBER-KOZAK
+Cyber Kozak ($CKZ) – Community-driven meme token inspired by the spirit of the Cossacks and the future of blockchain.
